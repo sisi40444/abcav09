@@ -20,4 +20,4 @@
 结语  
 通过专业日本AV平台观看影片，是高效与享受的结合。你不仅可以获取多种影片内容，更能体验到高清、安全、个性化的服务。是当今观众的不二之选。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link]( https://github.com/sisi40444/abcav09)</span>
